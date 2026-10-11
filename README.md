@@ -22,6 +22,8 @@ I strive to be honest, kind, and reliable, and I approach every task with both d
 * **Driven by curiosity** — passionate about continuous learning, experimentation, and tech leadership  
 * **Core values:** Responsibility, transparency, kindness, and relentless self-improvement
 
+* My Business Web Site: https://kingdomtechnologycr.com****
+
 😄 &nbsp;Pronouns: **He**
 
 ### 🛠️ Tech Stack
